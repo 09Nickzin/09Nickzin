@@ -8,7 +8,7 @@ Meu nome é **Gustavo**
 
 - ### você entra em contato comigo 📫
 
-- 00001100694560spsp@al.educacao.sp.gov.br
+- 00001100694560sp@al.educacao.sp.gov.br
 
 - @guh.xl7
 
